@@ -1,2 +1,2 @@
-# 20020828 Lee jihoo
+# 20000607 LEE EUIJU
 
