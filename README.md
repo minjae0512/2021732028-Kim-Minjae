@@ -1,2 +1,1 @@
-# 20020828 Lee jihoo
-
+# 2021732028 김민재 Kim Min Jae
